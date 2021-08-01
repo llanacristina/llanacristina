@@ -1,4 +1,4 @@
-## Olá, sou Alana 🙃
+## Olá , sou Alana 🙃
 
  » Sou estudante de Análise e desenvolvimento de Sistemas || IFPB👩‍💻
  
