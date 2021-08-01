@@ -2,8 +2,8 @@
 
  » Sou estudante de Análise e desenvolvimento de Sistemas || IFPB👩‍💻
  
- » Apaixonda por aprender novas tecnologias e coisas paralelas, além de ser muito curiosa com coisas do mundo...🌎🔍
+ » Apaixonda por aprender novas tecnologias e coisas paralelas, além de ser muito curiosa pelas coisas do mundo...🌎🔍
 
-» Atualmente estou apredendendo e trabalhando em algo legal.💡🕵️‍♀️
+» Atualmente estou aprendendo e trabalhando em algo legal.💡🕵️‍♀️
 
 
