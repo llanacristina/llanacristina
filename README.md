@@ -4,4 +4,4 @@
  
 » Atualmente estou aprendendo e trabalhando em algo legal.💡🕵️‍♀️
 
-
+ ![imagem](https://user-images.githubusercontent.com/86081104/138491455-67213288-1ef1-4457-8d90-7bf695b923fe.png)
