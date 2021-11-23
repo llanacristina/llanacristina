@@ -4,5 +4,4 @@
  
 » Atualmente estou aprendendo e trabalhando em algo legal.💡🕵️‍♀️
 
- <img src= "https://![download20211005131829](https://user-images.githubusercontent.com/86081104/142957467-90f8a5dc-36c1-45f0-9752-dc02874c1e5a.png) 
- align = "right" height = "150px" style = "border-radius: 50px;">
+ <img src=  "![img1](https://user-images.githubusercontent.com/86081104/142957833-12ae5e4c-1bb2-42b4-9077-e40ca28a331e.png)" align = "right" height = "150px" style = "border-radius: 50px">
